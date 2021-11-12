@@ -1,4 +1,3 @@
 Principal
 Me
-Mother
 Assistant
