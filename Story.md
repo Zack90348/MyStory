@@ -1,0 +1,1 @@
+One morning I was called in the principals office and i was in suspense for why i was called for and I was asked to wait outside for some time when i met assistant and she asked me why i was waiting 
